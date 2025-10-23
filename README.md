@@ -9,28 +9,28 @@
 dni list ; tamaki yumeshippers  ,  tamaki gooners  ,  nejitama shippers ( it IS that deep ) , basic dni criteria 
 <br />
 <br />
-if i dont reply to a whisper its because i didnt see it sorry !
+if i dont reply to a whisper its because i didnt see it sorry ! ˙𐃷˙
 <br />
 <br />
 
 ##   ───── my interests ⋆<img width="60" height="56" alt="Untitled design copy" src="https://github.com/user-attachments/assets/3e1b6264-6e5f-47ed-a057-cd664b7e130a" />
 
 
-🛸୭ ˚. ᵎᵎ i dont like too many things but im trying to watch more animes rn
+🛸୭ ˚. ᵎᵎ i dont like too many things but im trying to watch more animes rn ૮꒰˶ ⁠❛   ˕ ⁠❛˶꒱ა
 <br />
 <br />
 main interests ; mha , bsd , pokemon , satpop , fnaf
 <br />
-other intersts ; aot , bllk , rent a gf ,  sonic , hamilton , pusheen , flamingo , rtc , danganronpa , aggrestuko , hmc , south park , saiki k , heathers , ddlc
+other intersts ; aot , bllk , rent a gf ,  sonic , hamilton , pusheen , flamingo , rtc , danganronpa , aggrestuko , hmc , south park , saiki k , heathers , ddlc !
 <br />
 <br />
-fav music artists ; alex g , mitski , mom jeans , radiohead , msi , meth wax , tv girl , lndh , rio romeo , penolope scott , joost klein
+fav music artists ; alex g , mitski , mom jeans , radiohead , msi , meth wax , tv girl , lndh , rio romeo , penolope scott , joost klein !
 <br />
 <br />
-fav games ; mhur , roblox , minecraft , ponytown , pokemon ( swsh , usum , x&y , b2w2 ) , fnaf 2 , security breach , stray
+fav games ; mhur , roblox , minecraft , ponytown , pokemon ( swsh , usum , x&y , b2w2 ) , fnaf 2 , security breach , stray !
 <br />
 <br />
-fav ships ; miritama , bakudeku , togachaco , yumihisu , catradora , satogou , ranpoe , rethaida 
+fav ships ; miritama , bakudeku , togachaco , yumihisu , catradora , satogou , ranpoe , rethaida !
 <br />
 <br />
 <br />
