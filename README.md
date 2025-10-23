@@ -24,7 +24,7 @@ dont upset me.... you wouldnt want to make bea mad heh..
 <br />
 main interests ; mha , bsd , pokemon , satpop , fnaf
 <br />
-other intersts ; aot , bllk , rent a gf ,  sonic , hamilton , pusheen , flamingo , rtc , danganronpa , aggrestuko , hmc , south park , saiki k , heathers , ddlc !
+other interests ; aot , bllk , rent a gf ,  sonic , hamilton , pusheen , flamingo , rtc , danganronpa , aggrestuko , hmc , south park , saiki k , heathers , ddlc !
 <br />
 <br />
 fav music artists ; alex g , mitski , mom jeans , radiohead , msi , meth wax , tv girl , lndh , rio romeo , penolope scott , joost klein !
