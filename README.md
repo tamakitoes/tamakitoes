@@ -12,6 +12,9 @@ dni list ; tamaki yumeshippers  ,  tamaki gooners  ,  nejitama shippers ( it IS 
 if i dont reply to a whisper its because i didnt see it sorry ! ˙𐃷˙
 <br />
 <br />
+dont upset me.... you wouldnt want to make bea mad heh..
+<br />
+<br />
 
 ##   ───── my interests ⋆<img width="60" height="56" alt="Untitled design copy" src="https://github.com/user-attachments/assets/3e1b6264-6e5f-47ed-a057-cd664b7e130a" />
 
