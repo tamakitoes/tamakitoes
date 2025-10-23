@@ -3,7 +3,7 @@
 ##   ───── about me ⋆<img width="60" height="56" alt="Untitled design" src="https://github.com/user-attachments/assets/793db429-3147-48eb-81e9-63e083ca7597" />
 
 
-🛸୭ ˚. ᵎᵎ hai i dont have much to put here i just wanted to write a bit ! im lowkey addicted to mhur and i like watching anime and playing pokemon i suppose , my fav is zoroark ! anyway i AM tamakis #1 fan and if you think you are then youre wrong and pls dni thank u ! i dont usually add people i dont know /ᐠ - ˕ -マ ᶻ 𝗓 𐰁
+🛸୭ ˚. ᵎᵎ hai i dont have much to put here i just wanted to write a bit ! im lowkey addicted to mhur and i like watching anime and playing pokemon , my fav is zoroark ! anyway i AM tamakis #1 fan and if you think you are then youre wrong and pls dni thank u ! i dont usually add people i dont know /ᐠ - ˕ -マ ᶻ 𝗓 𐰁
 <br />
 <br />
 dni list ; tamaki yumeshippers  ,  tamaki gooners  ,  nejitama shippers ( it IS that deep ) , basic dni criteria 
