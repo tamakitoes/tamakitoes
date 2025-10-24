@@ -27,7 +27,7 @@ main interests ; mha , bsd , pokemon , satpop , fnaf
 other interests ; aot , bllk , rent a gf ,  sonic , hamilton , pusheen , flamingo , rtc , danganronpa , aggrestuko , hmc , south park , saiki k , heathers , ddlc !
 <br />
 <br />
-fav music artists ; alex g , mitski , mom jeans , radiohead , msi , meth wax , tv girl , lndh , rio romeo , penolope scott , joost klein !
+fav music artists ; alex g , mitski , mom jeans , radiohead , msi , meth wax , tv girl , lndh , rio romeo , penelope scott , joost klein !
 <br />
 <br />
 fav games ; mhur , roblox , minecraft , ponytown , pokemon ( swsh , usum , x&y , b2w2 ) , fnaf 2 , security breach , stray !
